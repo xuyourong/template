@@ -1,0 +1,4 @@
+---
+slug: amanda
+name: amanda
+---

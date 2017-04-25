@@ -1,0 +1,4 @@
+---
+slug: week
+name: week
+---
