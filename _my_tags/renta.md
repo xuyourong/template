@@ -1,0 +1,4 @@
+---
+slug: renta
+name: renta
+---
