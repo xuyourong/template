@@ -1,0 +1,4 @@
+---
+slug: inspired
+name: inspired
+---
