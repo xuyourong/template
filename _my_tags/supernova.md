@@ -1,0 +1,4 @@
+---
+slug: supernova
+name: supernova
+---
