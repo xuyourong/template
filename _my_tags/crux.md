@@ -1,0 +1,4 @@
+---
+slug: crux
+name: crux
+---
