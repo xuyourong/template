@@ -1,0 +1,4 @@
+---
+slug: isadore
+name: isadore
+---
