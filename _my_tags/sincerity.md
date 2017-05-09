@@ -1,0 +1,4 @@
+---
+slug: sincerity
+name: sincerity
+---
