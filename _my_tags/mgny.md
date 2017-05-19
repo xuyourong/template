@@ -1,0 +1,4 @@
+---
+slug: mgny
+name: mgny
+---
