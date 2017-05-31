@@ -1,0 +1,4 @@
+---
+slug: casablanca
+name: casablanca
+---
