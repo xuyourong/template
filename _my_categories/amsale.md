@@ -1,0 +1,4 @@
+---
+slug: amsale
+name: Amsale
+---
