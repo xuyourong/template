@@ -1,0 +1,4 @@
+---
+slug: destinations
+name: destinations
+---
