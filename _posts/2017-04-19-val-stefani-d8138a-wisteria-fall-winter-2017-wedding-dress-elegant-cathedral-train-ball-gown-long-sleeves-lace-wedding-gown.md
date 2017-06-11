@@ -1,0 +1,20 @@
+---
+layout: post
+date: '2017-04-19'
+title: "Val Stefani D8138A WISTERIA Fall/Winter 2017 Wedding Dress Elegant Cathedral Train Ball Gown Long Sleeves Lace Wedding Gown"
+category: Val Stefani
+tags: ["long","fall","granddressy","stefani","train"]
+image: http://img.granddressy.com/24161-thickbox_default/val-stefani-d8138a-wisteria-fall-winter-2017-wedding-dress-elegant-cathedral-train-ball-gown-long-sleeves-lace-wedding-gown.jpg
+---
+Val Stefani D8138A WISTERIA Fall/Winter 2017 Wedding Dress Elegant Cathedral Train Ball Gown Long Sleeves Lace Wedding Gown
+
+On Sales: **$389.98**
+<a href="https://www.granddressy.com/en/val-stefani/22643-val-stefani-d8138a-wisteria-fall-winter-2017-wedding-dress-elegant-cathedral-train-ball-gown-long-sleeves-lace-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.granddressy.com/24161-thickbox_default/val-stefani-d8138a-wisteria-fall-winter-2017-wedding-dress-elegant-cathedral-train-ball-gown-long-sleeves-lace-wedding-gown.jpg" alt="Val Stefani D8138A WISTERIA Fall/Winter 2017 Wedding Dress Elegant Cathedral Train Ball Gown Long Sleeves Lace Wedding Gown 0" /></a>
+<a href="https://www.granddressy.com/en/val-stefani/22643-val-stefani-d8138a-wisteria-fall-winter-2017-wedding-dress-elegant-cathedral-train-ball-gown-long-sleeves-lace-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.granddressy.com/24165-thickbox_default/val-stefani-d8138a-wisteria-fall-winter-2017-wedding-dress-elegant-cathedral-train-ball-gown-long-sleeves-lace-wedding-gown.jpg" alt="Val Stefani D8138A WISTERIA Fall/Winter 2017 Wedding Dress Elegant Cathedral Train Ball Gown Long Sleeves Lace Wedding Gown 1" /></a>
+<a href="https://www.granddressy.com/en/val-stefani/22643-val-stefani-d8138a-wisteria-fall-winter-2017-wedding-dress-elegant-cathedral-train-ball-gown-long-sleeves-lace-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.granddressy.com/24164-thickbox_default/val-stefani-d8138a-wisteria-fall-winter-2017-wedding-dress-elegant-cathedral-train-ball-gown-long-sleeves-lace-wedding-gown.jpg" alt="Val Stefani D8138A WISTERIA Fall/Winter 2017 Wedding Dress Elegant Cathedral Train Ball Gown Long Sleeves Lace Wedding Gown 2" /></a>
+<a href="https://www.granddressy.com/en/val-stefani/22643-val-stefani-d8138a-wisteria-fall-winter-2017-wedding-dress-elegant-cathedral-train-ball-gown-long-sleeves-lace-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.granddressy.com/24163-thickbox_default/val-stefani-d8138a-wisteria-fall-winter-2017-wedding-dress-elegant-cathedral-train-ball-gown-long-sleeves-lace-wedding-gown.jpg" alt="Val Stefani D8138A WISTERIA Fall/Winter 2017 Wedding Dress Elegant Cathedral Train Ball Gown Long Sleeves Lace Wedding Gown 3" /></a>
+<a href="https://www.granddressy.com/en/val-stefani/22643-val-stefani-d8138a-wisteria-fall-winter-2017-wedding-dress-elegant-cathedral-train-ball-gown-long-sleeves-lace-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.granddressy.com/24162-thickbox_default/val-stefani-d8138a-wisteria-fall-winter-2017-wedding-dress-elegant-cathedral-train-ball-gown-long-sleeves-lace-wedding-gown.jpg" alt="Val Stefani D8138A WISTERIA Fall/Winter 2017 Wedding Dress Elegant Cathedral Train Ball Gown Long Sleeves Lace Wedding Gown 4" /></a>
+
+Buy it: [Val Stefani D8138A WISTERIA Fall/Winter 2017 Wedding Dress Elegant Cathedral Train Ball Gown Long Sleeves Lace Wedding Gown](https://www.granddressy.com/en/val-stefani/22643-val-stefani-d8138a-wisteria-fall-winter-2017-wedding-dress-elegant-cathedral-train-ball-gown-long-sleeves-lace-wedding-gown.html "Val Stefani D8138A WISTERIA Fall/Winter 2017 Wedding Dress Elegant Cathedral Train Ball Gown Long Sleeves Lace Wedding Gown")
+
+View more: [Val Stefani](https://www.granddressy.com/en/297-val-stefani "Val Stefani")
