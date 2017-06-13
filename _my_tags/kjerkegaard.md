@@ -1,0 +1,4 @@
+---
+slug: kjerkegaard
+name: kjerkegaard
+---
