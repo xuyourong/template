@@ -1,0 +1,4 @@
+---
+slug: cover
+name: cover
+---
