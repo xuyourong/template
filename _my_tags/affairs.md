@@ -1,0 +1,4 @@
+---
+slug: affairs
+name: affairs
+---
