@@ -1,0 +1,4 @@
+---
+slug: inaya
+name: inaya
+---
