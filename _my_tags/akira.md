@@ -1,0 +1,4 @@
+---
+slug: akira
+name: akira
+---
