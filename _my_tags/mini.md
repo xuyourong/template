@@ -1,0 +1,4 @@
+---
+slug: mini
+name: mini
+---
