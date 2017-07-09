@@ -1,0 +1,4 @@
+---
+slug: setora
+name: setora
+---
